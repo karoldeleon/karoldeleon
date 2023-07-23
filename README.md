@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **kfortuner29@gmail.com**
 
-- 📄 Know about my experiences [my LinkedIn: www.linkedin.com/in/karol-de-leon-4a2203264](my LinkedIn: www.linkedin.com/in/karol-de-leon-4a2203264)
+- 📄 Know about my experiences in my LinkedIn: www.linkedin.com/in/karol-de-leon-4a2203264
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
